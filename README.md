@@ -7,5 +7,4 @@
 ### 💬 Get in touch
 
 - [Linked In](https://www.linkedin.com/in/donlukebeck/)
-- [Twitter](https://twitter.com/DonLukeBeck)
 
